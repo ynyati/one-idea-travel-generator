@@ -1,1 +1,1 @@
-# solotravel
+# oneideatravel
